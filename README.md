@@ -1,4 +1,4 @@
-👋 Hola, mi nomres es Dixander.
+👋 Hola, mi nombre es Dixander.
 
 ## Sobre Mí
 
